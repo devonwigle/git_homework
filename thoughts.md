@@ -11,4 +11,3 @@ To my husband Andreau, for tackling kids' bedtimes by himself while I am in clas
 
 Thoughts
 Busy day tomorrow
-What's for dinner?
